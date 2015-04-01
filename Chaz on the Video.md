@@ -1,0 +1,3 @@
+I am planning to do a video about the history of studying and writing histories about Napoleon. I personally find him a incredibly interesting historical actor, but I have become very interesting in the history of writing about him. He is in fact the second most written about person , behind Jesus Christ and ahead of Abraham Lincoln. 
+
+In my video I would like to look at the major historiographical trends that have been used to write about Napoleon, as well as the ever changing opinion the modern world has of him. I want to present the widest range of mainstream modern opinions of his as well as talk about why I find him such a interesting person from a historiographical perspective.
